@@ -6,7 +6,7 @@
 	
    Taking BS Pscyhology @ 18 • Artist
 	
- I code htmls ﹫ I have a wife = Turon<3 
+ I code htmls ﹫ moots? sure!!
 	    
 C + H IF YOU DONT PROSHIP 𝆹𝅥𝅯 
 	    
