@@ -14,10 +14,10 @@ FEINFEINFEINFEINFEIN
 	    
 ꞌꞋ IDV • Games • Anime • Code • Art
 	    
-# 🍣 ˛  𓏲࣪  '..Suguru.'
+# ˛  𓏲࣪  '..Suguru.'
 </pre>
 <br><br>
-<img src="[https://giffiles.alphacoders.com/220/220764.gif](https://media1.tenor.com/m/GOGwxLnE8roAAAAd/idv.gif)" />
+<img src="([(https://tenor.com/view/idv-gif-25559758)])" />
 <br><br><be>
     
 [![Spotify Badge](https://img.shields.io/badge/Spotify-1DB954?logo=spotify&logoColor=fff&style=flat)](https://open.spotify.com/user/31x2una6h6gig7wcczzckylfa7dy)
@@ -29,8 +29,6 @@ FEINFEINFEINFEINFEIN
 		</div>
 	<footer>
 		
-	</footer>
-	<!-- END FOOTER | the footer element is also new to HTML5 -->
-	</div>
+
 </body>
 </html>
