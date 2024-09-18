@@ -1,5 +1,5 @@
 <div align="center">
-<img src="[https://github.com/innng/innng/assets/26755058/5e0ce0fb-c544-4f8c-a307-5849165746d0](https://giffiles.alphacoders.com/220/220764.gif)" width="25%" align="right" />
+<img src="[https://github.com/innng/innng/assets/26755058/5e0ce0fb-c544-4f8c-a307-5849165746d0](https://tenor.com/view/idv-gif-25559758)" width="25%" align="right" />
 <img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=300&color=A7A459&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Hello+hello;+I'm+Khoi%2C+a+tech+wizard+and+magical+girl+by+daytime+%E2%9C%A9" width="70%" />
 <br><br>
 <pre>
@@ -28,7 +28,7 @@ FEINFEINFEINFEINFEIN
 			</div><p>Run, baby, run, run for your life, I'ma tear out your heart, it'll always be mine</p><div>
 		</div>
 	<footer>
-		&copy;2012 Francisco Campos Arias, All Rigts Reserved.
+		
 	</footer>
 	<!-- END FOOTER | the footer element is also new to HTML5 -->
 	</div>
