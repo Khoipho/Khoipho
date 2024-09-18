@@ -17,7 +17,7 @@ FEINFEINFEINFEINFEIN
 # 🍣 ˛  𓏲࣪  '..Suguru.'
 </pre>
 <br><br>
-<img src="https://giffiles.alphacoders.com/220/220764.gif" />
+<img src="[https://giffiles.alphacoders.com/220/220764.gif](https://media1.tenor.com/m/GOGwxLnE8roAAAAd/idv.gif)" />
 <br><br><be>
     
 [![Spotify Badge](https://img.shields.io/badge/Spotify-1DB954?logo=spotify&logoColor=fff&style=flat)](https://open.spotify.com/user/31x2una6h6gig7wcczzckylfa7dy)
