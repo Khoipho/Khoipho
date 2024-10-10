@@ -5,11 +5,13 @@
 <br><br>
 <pre>
 	
-<img src= "https://media.discordapp.net/attachments/1103673778380214342/1292512463979544666/elifinal.png?ex=67040189&is=6702b009&hm=058bda16e95f498cb4777a9b5e873b1ca00568af7882dc9f2d9dd5cbf043d2fc&=&format=webp&quality=lossless" />
+<img src= "https://media.discordapp.net/attachments/1292475154445762630/1293650253718749294/Untitled257_20241009210343.png?ex=6708cdef&is=67077c6f&hm=cea482ca7272a78cf235c58df97751193155c87421707b0a6ecb341f0c890ddb&=&format=webp&quality=lossless&width=507&height=676" />
 
 <header><b> ꒰  ঌ KHOI ໒  ꒱ </b></header>
 	
  I'm chronically online ﹫ basic DNI info in my <a href="https://khoiphoskarrd.carrd.co">caard</a>
+
+TY @getscrd FOR THE GRAPH POOKS ILYY
 	    
 FEINFEINFEINFEINFEINFEINFEINFEINFEIN
 
