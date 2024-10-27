@@ -15,7 +15,7 @@ TY @getscrd FOR THE GRAPH POOKS ILYY
 	    
 FEINFEINFEINFEINFEINFEINFEINFEINFEIN
 
-<I> Ships: EliNaib, Nortpheus, Nortmike, LuchiNort, NortGanji, (sort of) NortNaib </I>
+<I> Ships: EliNaib, Nortpheus, TonTon , NaibWilliam , NortGanji, NortNaib </I>
 	    
 # ˛  𓏲࣪ What else shall fate grant you?
 </pre>
