@@ -5,7 +5,7 @@
 <br><br>
 <pre>
 	
-<img src= "https://media.discordapp.net/attachments/1292475154445762630/1293650253718749294/Untitled257_20241009210343.png?ex=671fe02f&is=671e8eaf&hm=b1ff526cc1e58a4aac69a48d45443010750ac039fc95456eba769df5f43b8416&=&format=webp&quality=lossless&width=507&height=676" />
+<img src= "[(https://cdn.discordapp.com/attachments/1292475154445762630/1293650253718749294/Untitled257_20241009210343.png?ex=674ffeef&is=674ead6f&hm=a0bd1b008fb135faae8cd2620ecc02b441afe42c79216d0c1748039bb4e2081a&)]" />
 
 <header><b> ꒰  ঌ KHOI ໒  ꒱ </b></header>
 	
@@ -15,7 +15,7 @@ TY @getscrd FOR THE GRAPH POOKS ILYY
 	    
 FEINFEINFEINFEINFEINFEINFEINFEINFEIN
 
-<I> Ships: EliNaib, Nortpheus, TonTon , NaibWilliam , NortGanji, NortNaib </I>
+<I> Ships: EliNaib, Kevjose, Nortpheus, TonTon , NaibWilliam , NortGanji, NortNaib </I>
 	    
 # ˛  𓏲࣪ What else shall fate grant you?
 </pre>
