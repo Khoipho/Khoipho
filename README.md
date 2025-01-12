@@ -4,9 +4,9 @@
 
 <br><br>
 <pre>
-	
-<img src= "[(https://cdn.discordapp.com/attachments/1292475154445762630/1293650253718749294/Untitled257_20241009210343.png?ex=674ffeef&is=674ead6f&hm=a0bd1b008fb135faae8cd2620ecc02b441afe42c79216d0c1748039bb4e2081a&)]" />
 
+	 <a href="https://freeimage.host/i/24A02Tb"><img src="https://iili.io/24A02Tb.th.png" alt="24A02Tb.th.png" border="0"></a>
+	
 <header><b> ꒰  ঌ KHOI ໒  ꒱ </b></header>
 	
  I'm chronically online ﹫ basic DNI info in my <a href="https://khoiphoskarrd.carrd.co">caard</a>
@@ -16,6 +16,8 @@ TY @getscrd FOR THE GRAPH POOKS ILYY
 FEINFEINFEINFEINFEINFEINFEINFEINFEIN
 
 <I> Ships: EliNaib, Kevjose, Nortpheus, TonTon , NaibWilliam , NortGanji, NortNaib </I>
+	<I> I do not condone harassment of any type.
+	<I> DNI: proshippers that push their ideals onto me. </I>
 	    
 # ˛  𓏲࣪ What else shall fate grant you?
 </pre>
