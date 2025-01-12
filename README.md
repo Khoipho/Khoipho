@@ -5,7 +5,7 @@
 <br><br>
 <pre>
 
-	 <a href="https://freeimage.host/i/24A02Tb"><img src="https://iili.io/24A02Tb.th.png" alt="24A02Tb.th.png" border="0"></a>
+<a href="https://freeimage.host/i/24A02Tb"><img src="https://iili.io/24A02Tb.th.png" alt="24A02Tb.th.png" border="0"></a>
 	
 <header><b> ꒰  ঌ KHOI ໒  ꒱ </b></header>
 	
