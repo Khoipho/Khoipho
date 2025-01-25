@@ -15,9 +15,13 @@ TY @getscrd FOR THE GRAPH POOKS ILYY
 	    
 FEINFEINFEINFEINFEINFEINFEINFEINFEIN
 
-<I> Ships: EliNaib, Kevjose, Nortpheus, TonTon , NaibWilliam , NortGanji, NortNaib </I>
+<I> Ships: Elinaib, Kevjose, I multiship really!  </I>
 	<I> I do not condone harassment of any type.
-	<I> DNI: proshippers that push their ideals onto me. </I>
+		
+	<I> DNI: proshippers, zionists, assholes in general </I>
+		<I> I CANNOT believe I have to add this in, if I say DNI of a ship, please leave me alone, 
+	I'm not 'hearing you out' especially if I see something like Alvaluca or Orphlice. I get uncomfortable. 
+	        
 	    
 # ˛  𓏲࣪ What else shall fate grant you?
 </pre>
