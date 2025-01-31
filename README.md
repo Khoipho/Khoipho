@@ -11,8 +11,6 @@
 	
  I'm chronically online ﹫ basic DNI info in my <a href="https://khoiphoskarrd.carrd.co">caard</a>
 
-TY @getscrd FOR THE GRAPH POOKS ILYY
-	    
 FEINFEINFEINFEINFEINFEINFEINFEINFEIN
 
 <I> Ships: Elinaib, Kevjose, I multiship really!  </I>
