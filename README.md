@@ -20,7 +20,7 @@ FEINFEINFEINFEINFEINFEINFEINFEINFEIN
 		<I> I CANNOT believe I have to add this in, if I say DNI of a ship, please leave me alone, 
 	I'm not 'hearing you out' especially if I see something like Alvaluca or Orphlice. I get uncomfortable. 
 
-			<I> I hardly block people, so if I did it was for good reason.  </I>
+		<I> I hardly block people, so if I did it was for good reason.  </I>
 	        
 	    
 # ˛  𓏲࣪ What else shall fate grant you?
