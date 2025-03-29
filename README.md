@@ -19,8 +19,8 @@ FEINFEINFEINFEINFEINFEINFEINFEINFEIN
 	<I> DNI: proshippers, zionists, assholes in general </I>
 		<I> I CANNOT believe I have to add this in, if I say DNI of a ship, please leave me alone, 
 	I'm not 'hearing you out' especially if I see something like Alvaluca or Orphlice. I get uncomfortable. 
-
-		<I> I hardly block people, so if I did it was for good reason.  </I>
+			
+	<I>I mostly block proshippers! I also do short hides ^^ all oomfs that are from ponytown or twitter are welcome to cuddle! </I>
 	        
 	    
 # ˛  𓏲࣪ What else shall fate grant you?
