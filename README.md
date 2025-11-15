@@ -13,12 +13,12 @@
 
 FEINFEINFEINFEINFEINFEINFEINFEINFEIN
 
-<I> Ships: Elinaib, Kevjose, I multiship really!  </I>
-	<I> I do not condone harassment of any type.
+<I> I multiship.  </I>
+	<I> I do not condone harassment of any type. 
+		I do not necessarily sit with ships unless with my partner
 		
 	<I> DNI: proshippers, zionists, assholes in general </I>
-		<I> I CANNOT believe I have to add this in, if I say DNI of a ship, please leave me alone, 
-	I'm not 'hearing you out' especially if I see something like Alvaluca or Orphlice. I get uncomfortable. 
+	
 			
 	<I>I mostly block proshippers! I also do short hides ^^ all oomfs that are from ponytown or twitter are welcome to cuddle! </I>
 	        
