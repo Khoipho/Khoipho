@@ -17,6 +17,7 @@
 	
 		<a href="https://imgbb.com/"><img src="https://i.ibb.co/ZRF77DXk/norton-norton-campbell.gif" alt="norton norton campbell" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'></a><br />
 	<I> DNI: proshippers, zionists, assholes in general </I>
+	<I>I also do blocks non-personally.</I>
 	<I>I also like other stuff, just ask</I>
 	        
 	    
