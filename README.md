@@ -33,6 +33,7 @@
 
 		<a href="https://imgbb.com/"><img src="https://i.ibb.co/LzPLj7CQ/asd3rdf.png" alt="norton norton campbell" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'></a><br />
 	<I> DNI: proshippers, zionists, assholes in general </I>
+	THIN ICE if you like blue lock = bad experiences with con cosplayers.
 	        
 	    
 # ˛ ?
