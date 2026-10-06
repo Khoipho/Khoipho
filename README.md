@@ -31,7 +31,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-		<a href="https://imgbb.com/"><img src="https://i.ibb.co/LzPLj7CQ/asd3rdf.png" alt="norton norton campbell" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'></a><br />
+	<div align="center"> <a href="https://ibb.co/XfXVfFzC"><img src="https://i.ibb.co/XfXVfFzC/5ba684fe84e03a01460437971cfcb1e5.png" alt="5ba684fe84e03a01460437971cfcb1e5" border="0"></a> </div>
 	<I> DNI: proshippers, zionists, assholes in general </I>
 	THIN ICE if you like blue lock = bad experiences with con cosplayers.
 	        
